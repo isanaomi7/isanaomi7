@@ -9,4 +9,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 **Você pode entrar em contato comigo 📫**
 
 [Envie-me um e-mail](mailto:@isanaomi2007@hotmail.com)
-@isanaomi2007
+isanaomi2007@hotmail.com
